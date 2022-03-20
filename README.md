@@ -1,4 +1,4 @@
-# Kamala and Andrew
+
 
 ## June 25th
 ## Thomas S. Monson Center
