@@ -2,7 +2,7 @@
 
 # Kamala and Andy Wedding
 
-(/images/kamalaandy.jpg)
+![Kamala&Andy](/images/kamalaandy.jpg)
 
 ## June 25th
 ## Thomas S. Monson Center
