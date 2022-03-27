@@ -1,10 +1,10 @@
 
-<p style="text-align: center;">
+
 # Kamala and Andy Wedding
-</p>
-<p style="text-align: center;">
+
+
 ![Kamala&Andy](/images/IMG_0868edit.jpg) 
-</p>
+
 
 ## June 25th
 ## Thomas S. Monson Center
