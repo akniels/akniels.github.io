@@ -16,7 +16,7 @@
 
 
 
-![ganeshimage](/images/Ganeshimage.jpg)
+![ganeshimage](/images/Ganeshimage.jpeg)
 
 
 
