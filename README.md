@@ -10,12 +10,10 @@
 ### Dinner 6:30 PM
 ### Dancing and Festivities 7:30 - 10 PM
 
-
+![thomasmonsyboy](/images/thomasmonson.png)
 
 
 ![ganeshimage](/images/Ganeshimage.jpeg)
-
-
 
 
 ## June 26th, 2022
@@ -24,9 +22,10 @@
 ### Ceremony 10:30 am
 ### Lunch 12 pm
 
+![ganeshatemple](/images/ganeshatemple.png)
+
 
 ![kamala](/images/IMG_1442edit.jpg)
-
 
 
 # Registry
@@ -41,11 +40,8 @@ https://www.travelersjoy.com/kamalaandandrew/
 
 ![andy](/images/IMG_0643edit.jpg)
 
-Wedding Locations
 
-![ganeshatemple](/images/ganeshatemple.png)
 
-![thomasmonsyboy](/images/thomasmonson.png)
 
 
 
