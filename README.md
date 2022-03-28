@@ -8,7 +8,7 @@
 ## 411 E South Temple Salt Lake City, Utah
 ### Ring Ceremony 6 PM
 ### Dinner 6:30 PM
-### Dancing and Festivities 7 - 10 PM
+### Dancing and Festivities 7:30 - 10 PM
 
 
 
