@@ -1,9 +1,9 @@
 
 ![Kamala&Andy](/images/IMG_0868edit.jpg) 
 
-# Kamala and Andy
+# Kamala and Andy's Wedding
 
-## June 25th
+## June 25th, 2022
 ## Thomas S. Monson Center
 ## 411 E South Temple Salt Lake City, Utah
 ### Ring Ceremony 6 PM
@@ -18,7 +18,7 @@
 
 
 
-## June 26th
+## June 26th, 2022
 ## Sri Ganesha Hindu Temple
 ## 1142 W South Jordan Parkway, South Jordan Utah
 ### Ceremony 10:30 am
