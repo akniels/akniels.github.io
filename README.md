@@ -43,4 +43,12 @@ https://www.travelersjoy.com/kamalaandandrew/
 
 Wedding Locations
 
+![ganeshatemple](/images/ganeshatemple.png)
+
+![thomasmonsyboy](/images/thomasmonson.png)
+
+
+
+
+
 
