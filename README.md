@@ -1,10 +1,7 @@
 
-
-# Kamala and Andy Wedding
-
-
 ![Kamala&Andy](/images/IMG_0868edit.jpg) 
 
+# Kamala and Andy Wedding
 
 ## June 25th
 ## Thomas S. Monson Center
@@ -35,8 +32,7 @@
 # Registry
 
 
+https://www.travelersjoy.com/kamalaandandrew/
+
+
 ![andy](/images/IMG_0643edit.jpg)
-
-
-
-# Info for Hotels
