@@ -1,1 +1,4 @@
 theme: jekyll-theme-cayman
+pages:
+  markdown:
+    extra: true
